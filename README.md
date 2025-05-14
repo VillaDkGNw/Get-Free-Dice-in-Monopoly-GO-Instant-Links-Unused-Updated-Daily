@@ -1,5 +1,5 @@
 
-🚀 Get Free Dice in Monopoly GO – Instant Links, Unused & Updated Daily!
+# 🚀 Get Free Dice in Monopoly GO – Instant Links, Unused & Updated Daily!
 
 Scopely’s Monopoly GO has revolutionized the classic board game, turning it into a captivating mobile gaming experience with rich features, strategic gameplay, and exciting in-game rewards. A key currency that powers the experience is the free dice, which allow players to make moves, collect properties, and participate in thrilling events.
 
